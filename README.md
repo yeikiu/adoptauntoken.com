@@ -1,1 +1,1 @@
-# adoptauntoken.com
+# [adoptauntoken.com](beta.adoptauntoken.com)
