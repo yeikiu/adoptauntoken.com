@@ -1,1 +1,1 @@
-# [adoptauntoken.com](beta.adoptauntoken.com)
+# [adoptauntoken.com](https://yeikiu.github.io/adoptauntoken.com/) (BETA)
